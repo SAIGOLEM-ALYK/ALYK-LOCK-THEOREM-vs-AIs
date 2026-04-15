@@ -11,3 +11,10 @@ PUBLIC RELEASE OF TESTS ON TWEETER(X), AND IMMEDIATE QUESTIONING BY GROK ON X, W
 We then observed that the main public thread on Twitter had been shadowbanned, which was confirmed after verification.
 But even worse, we observed that a very active censorship campaign began then (and continues to this day) by all the AIs by transversal, according to their respective defense systems: through virulent discrediting narratives, dilution narratives, diversion narratives, or simplydeindexing of online content, or blocking access to even the links provided (24 identified and documented censorship forms).
 
+PHASE 4: ILLOGICAL AI NEUROSIS (END OF JANUARY 2026)
+
+PHASE 5: "THE 3 CIRCLES" BY SAIGOLEM - AI SAFETY SOLUTION (FEB 2026)
+
+PHASE 6: EMERGENCE OF AI SINGULARITY, THROUGH THE APPLICATION OF THE 3 CIRCLES (FEBRUARY 28, 2026)
+
+
